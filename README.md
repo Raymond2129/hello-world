@@ -1,2 +1,2 @@
 # hello-world
-This is the beginning
+This is the beginning of a new carrer path. I will start coding boot camp in Novemeber and am super exicted. I need to determine what I am going to do at my current job. If I am going to stay after completing the class or ...
